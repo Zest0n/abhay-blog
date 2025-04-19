@@ -47,4 +47,4 @@ This blog is a journal. A mirror. A small record of the quiet war I fight every 
 If you're reading this and you’ve ever felt behind — know that I did too.  
 We’re just getting started.
 
-_Aarav Sharma_
+_Abhay Nawani_
